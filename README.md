@@ -1,1 +1,1 @@
-# MyCompetative
+# MyCompetitive
